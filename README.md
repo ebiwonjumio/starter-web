@@ -19,3 +19,5 @@ tus cosas son malos no ven a mi para comprandolo
 ##Cambia
 
 #De Nada hermano
+
+#Derechos reservados
