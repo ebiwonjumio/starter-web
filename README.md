@@ -13,7 +13,7 @@ tus cosas son malos no ven a mi para comprandolo
 ###Lograr Sueños 
 
 #Sin Pena
-
+editar sigue y jamas parar
 ##No Tuvimos Opcion
 
 ##Cambia
