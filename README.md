@@ -15,3 +15,7 @@ tus cosas son malos no ven a mi para comprandolo
 #Sin Pena
 
 ##No Tuvimos Opcion
+
+##Cambia
+
+#De Nada hermano
