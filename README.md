@@ -19,5 +19,6 @@ editar sigue y jamas parar
 ##Cambia
 
 #De Nada hermano
+vamos adelante nunca atrás
 
 #Derechos reservados
