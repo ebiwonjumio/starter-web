@@ -21,4 +21,4 @@ editar sigue y jamas parar
 #De Nada hermano
 vamos adelante nunca atrás, podemos lograrlo
 
-#Derechos reservados
+#Derechos reservados. 2020
